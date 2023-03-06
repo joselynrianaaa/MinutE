@@ -17,12 +17,9 @@ each time you receive a new assignment. All you need
 to do is provide us with the task'
 s specifics, the deadline,
 and the estimated number of hours to finish it!
+![4867780](https://user-images.githubusercontent.com/113001778/223043777-b8b09c1d-4f01-4ee6-accf-17ecb8c1bb6b.jpg)
 
 
-
-
-
-[4867780](https://user-images.githubusercontent.com/113001778/223043159-25ac6910-fba0-446b-b08f-a53d481f3736.jpg)
 
 
 
